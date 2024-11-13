@@ -1,5 +1,5 @@
-<h1>QQPulsa: Main Judi Online dengan Pulsa dan Raih Kemenangan Besar!</h1>
-<h2><strong><a href="http://www.google.com">klik di sini untuk mendapatkan hadiah gratis</a></strong></h2>
+<rhmatmuliamarpaungw
+</h1>href="http://www.google.com">klik di sini untuk mendapatkan hadiah gratis</a></strong></h2>
 <h2>&nbsp;</h2>
 <h2><strong><a href="http://www.google.com">klik di sini untuk mendapatkan hadiah gratis</a></strong></h2>
 <p>&nbsp;</p>
